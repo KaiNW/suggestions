@@ -1,1 +1,1 @@
-# peacesectorsuggestions
+# Official Peace Sector suggestions board
